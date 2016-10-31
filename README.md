@@ -8,8 +8,8 @@ Satu studi dari National Cancer Institute menemukan bahwa makan 10 gram (sekitar
 Lainnya penelitian yang dilakukan di Case Western Reserve University menunjukkan bahwa bawang putih dapat membantu mengurangi tingkat terjadinya tumor pra-kanker (polip) di usus besar.<br />
 <br />
 Selanjutnya menampilkan bawang putih sebagai salah satu dari banyak makanan pelawan kanker , beberapa studi populasi lainnya yang dilakukan di Cina juga menemukan bahwa konsumsi sering bawang putih dikaitkan dengan penurunan risiko esofagus dan lambung. Risiko tampaknya menjatuhkan sebagai jumlah bawang putih yang dikonsumsi meningkat. 
-- <a href="http://www.bugarfit.com/2016/06/bawang-putih.html" target="_blank">Manfaat Bawang Putih</a>
-- <a href="http://www.bugarfit.com/2016/06/manfaat-minyak-bawang-putih-bisa.html" target="_blank">Manfaat Minyak Bawang Putih</a> <br />
-- <a href="http://www.bugarfit.com/2015/12/manfaat-bawang-bombai.html" target="_blank">Manfaat Bawang Bombay</a><br />
-- <a href="http://www.bugarfit.com/2015/09/bawang-dayak.html" target="_blank">Manfaat Bawang Dayak</a><br />
+- <a href="http://www.bugarfit.com/1060/bawang-putih.html" target="_blank">Manfaat Bawang Putih</a>
+- <a href="http://www.bugarfit.com/1135/manfaat-minyak-bawang-putih-untuk-kesehatan.html" target="_blank">Manfaat Minyak Bawang Putih</a> <br />
+- <a href="http://www.bugarfit.com/1361/manfaat-bawang-bombai.html" target="_blank">Manfaat Bawang Bombay</a><br />
+- <a href="http://www.bugarfit.com/973/bawang-dayak.html" target="_blank">Manfaat Bawang Dayak</a><br />
 #manfaat-bawang-putih
